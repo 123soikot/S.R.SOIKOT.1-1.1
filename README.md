@@ -1,8 +1,8 @@
-<p align="center"><a href="https://m.me/MBC.K1NG.007" target="_blank" rel="noopener noreferrer">
-  <img src="https://i.imgur.com/rB8e26W.jpeg" width="50" style="margin-right: 10px;"></a>
+<p align="center"><a href="https://m.me/mdsakhoyat.hosen.9" target="_blank" rel="noopener noreferrer">
+  <img src="https://i.imgur.com/PuK1Xt2.jpeg" width="50" style="margin-right: 10px;"></a>
 </p>
 <h5 align="center">
-🔹MOHAMMAD BADOL CHOWDHURY
+🔹MD SOIKOT HOSEN
 
 
 - [📝 **Note**](#-note)
@@ -23,32 +23,32 @@
 BOT-OWNER-CONTEG"
 
  FACEBOK
-https://www.facebook.com/MBC.K1NG.007"
+https://www.facebook.com/mdsakhoyat.hosen.9"
 
 FACEBOK
-https://m.me/MBC.K1NG.007"
+https://m.me/mdsakhoyat.hosen.9"
 
 MESSENGER
 m.me/100001381266797"
 
 WHATSAPP
-wa.me/+8801782721761"
+wa.me/+8801758307316"
 
-<img align="center" src="https://i.imgur.com/fpHVQjf.jpeg"/>
-
-
-🔹MOHAMMAD BADOL CHOWDHURY 
+<img align="center" src="https://i.imgur.com/PuK1Xt2.jpeg"/>
 
 
-# Editing BY MOHAMMAD BADOL CHOWDHURY
+🔹Ex 卝 বয়ফ্রেন্ডヅ
 
-# BADOL-BOT-PACK-SUPPER-ROBOT REAL OWNER BADOL CHOWDHURY
 
-# Everyone run this BADOL-BOT-007 for fun
+# Editing BY Ex 卝 বয়ফ্রেন্ডヅ
+
+# BADOL-BOT-PACK-SUPPER-ROBOT REAL OWNER Ex 卝 বয়ফ্রেন্ডヅ
+
+# Everyone run this  2.0.v.v.vfor fun
 
 # If there is any error, I will fix it by knocking on Facebook
 
-# https://m.me/MBC.K1NG.007
+# https://m.me/mdsakhoyat.hosen.9
 
 # I hope you enjoy
 
